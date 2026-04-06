@@ -2,7 +2,7 @@
   <img align=center src="https://gifcity.carrd.co/assets/images/gallery77/315137e2.png?v=20a350bf">
   <br>
   <img src="https://carcuvorous.carrd.co/assets/images/gallery20/b7df3e7d.gif?v=72ce5086">
-  $\text{\color{#b41515} babyㅤ✄ㅤthey / heㅤ𓄧ㅤ19 }$
+  $\text{\color{#b41515} babyㅤ✄ㅤthey / he , maleㅤ𓄧ㅤ19 }$
   <img src="https://carcuvorous.carrd.co/assets/images/gallery20/92a12537.gif?v=72ce5086">
   <br>
   <img align=center src="https://i.postimg.cc/Kj0v5ndq/loved.gif">
