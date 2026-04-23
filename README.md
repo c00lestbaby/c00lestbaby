@@ -24,7 +24,7 @@
   <img src="https://carcuvorous.carrd.co/assets/images/gallery16/d83e0912.gif?v=72ce5086">
   <br>
   <img src="https://gifcity.carrd.co/assets/images/gallery88/36adc291.gif?v=20a350bf">
-  $\text{\color{#d92e2e} not anti/pro/wutevership that stuff is dumb }$
+  $\text{\color{#d92e2e} dont label me as pro- or anti-ship. }$
   <br>
   <br>
   <img align=center src="https://carcuvorous.carrd.co/assets/images/gallery02/216964e7.png?v=72ce5086">
