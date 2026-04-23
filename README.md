@@ -28,3 +28,6 @@
   <br>
   <br>
   <img align=center src="https://carcuvorous.carrd.co/assets/images/gallery02/216964e7.png?v=72ce5086">
+  <br>
+  <br>
+  block me if you use the term "problematic" unironically, you're annoying lmao
