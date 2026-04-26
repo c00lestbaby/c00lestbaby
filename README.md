@@ -20,11 +20,8 @@
   <img src="https://carcuvorous.carrd.co/assets/images/gallery17/fe3d18a1.gif?v=72ce5086">
   $\text{\color{#d92e2e} usually with my cg and/or 2nd boyf }$
   <br>
-  $\text{\color{#b41515} hide me instead of harassing me in whisps plz }$
+  $\text{\color{#b41515} dont label me as pro- or anti-ship. }$
   <img src="https://carcuvorous.carrd.co/assets/images/gallery16/d83e0912.gif?v=72ce5086">
-  <br>
-  <img src="https://gifcity.carrd.co/assets/images/gallery88/36adc291.gif?v=20a350bf">
-  $\text{\color{#d92e2e} dont label me as pro- or anti-ship. }$
   <br>
   <br>
   <img align=center src="https://carcuvorous.carrd.co/assets/images/gallery02/216964e7.png?v=72ce5086">
